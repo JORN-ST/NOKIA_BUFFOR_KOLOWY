@@ -1,2 +1,2 @@
-# NOKIA_BUFFOR_KO-OWY
+# NOKIA_BUFFOR_KOLOWY
 dramat rozmowy kw.
